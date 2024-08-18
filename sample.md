@@ -1,1 +1,0 @@
-# Kogda ya uzhe budu vse znat'
